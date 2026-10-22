@@ -1,2 +1,2 @@
 # MIT_DPS
-dead programmers societu teamates 
+dead programmers society teamates 
